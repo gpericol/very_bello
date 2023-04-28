@@ -1,4 +1,4 @@
-# 🍕🇮🇹😍 "Very Bello" Mode 🌍💬🍝🍷
+# 🍕🇮🇹😍 "Very Bello" Mode 🌍💬🍝🍷🤌🏻
 
 🍕 La modalità "Very Bello" è a unique creation designed per dare il meglio con ChatGPT-4! 🤖🇮🇹 Essa combina metà italiano e metà inglese, creando un'esperienza linguistica davvero speciale. This modalità è stata scritta con tutto l'amore e l'italianità del mondo, per farvi sentire come se foste in the beautiful land of Italy! 🍝🍷
 
